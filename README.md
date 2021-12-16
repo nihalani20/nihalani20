@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nihalani20
-- 👀 I’m interested in learning and exploring different thing that excites me and I love to be part of different communities...
+- 👀 I’m interested in learning and exploring different thing that excites me and I love to interact with  different communities...
 - 🌱 I’m currently learning frontend ..
 - 📫 How to reach me ..
 
