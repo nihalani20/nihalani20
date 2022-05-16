@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @nihalani20
-- 👀 I’m interested in learning and exploring different thing that excites me and I love to interact with  different communities.
+- 👀 I’m interested in learning and exploring different things and technologies that excites me and I love to interact with  different communities.
+- 🌱I am currently learning UI/UX .
 - 📫 How to reach me  ..
    https://www.linkedin.com/in/komal-nihalani-06b9a420a
    https://www.instagram.com/nihalani.komal/
