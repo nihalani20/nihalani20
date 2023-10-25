@@ -1,4 +1,4 @@
-- 👋 Hi, my name is Komal and I'm a creative individual and problem solver with a passion for both technology and design.I am driven by the desire to create a meaningful impact through my work.I love spending time knowing about technology,meditative lifestyle ,yoga and Indian food etc .Other than that, I enjoy observing and contemplating the world around me as a way to recharge my creative energy. 
+- 👋 Hi, my name is Komal and I'm a creative individual and problem solver with a passion for both technology and design.I am driven by the desire to create a meaningful impact through my work. 
 - 📫 How to reach me  ..
    https://www.linkedin.com/in/komal-nihalani-06b9a420a
 <!---
